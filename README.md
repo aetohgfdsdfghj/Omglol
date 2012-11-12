@@ -1,1 +1,3 @@
-Je mange du chien
+In my mind, I need eat a dog
+
+
